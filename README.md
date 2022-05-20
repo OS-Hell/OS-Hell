@@ -2,4 +2,4 @@
 - 👀 I’m interested in learning all I can.
 - 🌱 I’m currently learning about A.I. via data science and analystics as well as a few speaking languages as translation comes relatively natural to me.
 - 💞️ I’m looking to collaborate on anything really. I may not know much now, however I'm always eager to learn more.
-- 📫 How to reach me- honestly best way is via email or twiiter. StarDustFlyTrap@protonmail.com or @Operator_Paz
+- 📫 How to reach me- honestly best way is via email or twiiter. StarDustFlyTrap@protonmail.com or Operator_Paz on Twitter.
